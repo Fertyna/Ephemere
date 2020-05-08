@@ -39,3 +39,4 @@ J’ai donc 3 éléments le dôme en papier mâché qui sera faisable dès que j
 
 **Calendrier de production**
 
+https://trello.com/invite/b/DkvAQt52/c5d8b5746e421e894ad22546d73f0f26/progra-ephemere
