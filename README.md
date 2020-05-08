@@ -1,9 +1,6 @@
-# Ephemere 
+# Ephemere-Hypnose 
 
 Par Justine Verstraeten
-
-
-**Hypnose**
 
 **Biographie**
 
